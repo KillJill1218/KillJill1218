@@ -1,5 +1,5 @@
 ### Hi there 👋 ,
-I'm KillJill1218 /play secret 🔪
+I'm KillJill1218 🔪
 
 :smoking: I'm just learning how to code :smoking:
 
